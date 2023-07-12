@@ -7,5 +7,5 @@
 - Mn có thể thắc mắc mình 2009 mà năm nay đã lớp 10 thì ối dồi nhưng mà đây là nick của đứa em, thật ra mình 2008
 
 
-- Vì mới vào cáp 3 nên mình không có nhiều thời gian mà share (thật ra do nhác với lại làm mất file)
+- Vì mới vào cấp 3 nên mình không có nhiều thời gian mà share (thật ra do nhác với lại làm mất file)
 
